@@ -1,1 +1,0 @@
-Telegram : t.me/ayishhakimi
